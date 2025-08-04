@@ -150,7 +150,7 @@ This is the home of open-source tools inspired by the *real tech drama* shaping 
 - [Nintendo Switch 2: Bare Minimum? The Shocking Truth! #Nintendo](https://www.youtube.com/watch?v=bfuHD2BzG38)
 - [Nintendo's CRAZY Switch 2 Price Mystery! What's Happening? #Switch2](https://www.youtube.com/watch?v=mljyNY-SC1s)
 - [SHOCKING! Nintendo Switch 2 Crushes Expectations with WWE 2K25! #GamingNews](https://www.youtube.com/watch?v=B0wy2nPM0M)
-- Nintendo Switch 2: EPIC Square Enix RPGs CONFIRMED! #Switch2](https://www.youtube.com/watch?v=YLrLaBR2lhc)
+- [Nintendo Switch 2: EPIC Square Enix RPGs CONFIRMED! #Switch2](https://www.youtube.com/watch?v=YLrLaBR2lhc)
 - [Nintendo's CRAZY Price Hike on Old Switches! #SwitchNews](https://www.youtube.com/watch?v=RkGlf_fA2y8)
 - [Lenovo SHOCKS with RTX 5050 Gaming Laptop Under $1100! #Gaming](https://www.youtube.com/watch?v=MTNHK7P13uc)
 - [TSMC's SHOCKING Move: The Future of AI DEPENDS on This! #AI](https://www.youtube.com/watch?v=-yG9Tazat4M)
